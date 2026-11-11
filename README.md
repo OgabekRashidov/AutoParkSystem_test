@@ -1,0 +1,1 @@
+Avtoturargoh boshqaruv tizimi.
